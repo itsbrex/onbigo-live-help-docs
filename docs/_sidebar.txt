@@ -1,4 +1,3 @@
-welcome to bigo live.md
 - INTRO
 introduction to BIGO LIVE.md
 how-BIGO-LIVE-works.md
