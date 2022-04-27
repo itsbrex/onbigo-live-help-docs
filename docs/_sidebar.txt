@@ -1,5 +1,4 @@
 - INTRO
-introduction to BIGO LIVE.md
 how-BIGO-LIVE-works.md
 getting-started.md
 
