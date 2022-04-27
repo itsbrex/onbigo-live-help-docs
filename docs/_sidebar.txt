@@ -1,6 +1,7 @@
 - INTRO
-how-BIGO-LIVE-works.md
+introduction.md
 getting-started.md
+how this site works.md
 
 - FEATURES
 home-page.md
