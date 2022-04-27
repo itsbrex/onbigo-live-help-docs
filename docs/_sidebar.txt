@@ -1,1 +1,33 @@
+- INTRO
+introduction to BIGO LIVE.md
+how-BIGO-LIVE-works.md
+getting-started.md
+
+- FEATURES
+home-page.md
+explore.md
+featured.md
+bar.md
+community.md
+nearby.md
+popular.md
+chat.md
+game.md
+me.md
+messages.md
+wallet.md
+
+- NEW-HOSTS
 welcome to bigo live.md
+Where can I meet new members?.md
+What is a PK?.md
+How do I sign up for a PK?.md
+Where can I get help?.md
+
+- GAMING
+
+- SVIP
+
+- FAMILY
+
+- AGENCIES
