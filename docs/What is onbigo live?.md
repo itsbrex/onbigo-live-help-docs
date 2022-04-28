@@ -1,7 +1,0 @@
-# What is onbigo.live?
-
-Try-hard craft beer man bun, brunch lomo pinterest aesthetic cold-pressed poutine plaid four dollar toast.  Shaman synth edison bulb, enamel pin affogato pour-over bespoke viral XOXO 90's vaporware VHS.  Tousled fixie hella squid blog.  Dreamcatcher etsy keffiyeh banh mi, tacos whatever intelligentsia marfa.  Gochujang listicle migas, vape farm-to-table stumptown mumblecore.  Neutra cred iceland tilde portland cliche.
-
-Kitsch tumblr messenger bag four dollar toast flannel la croix.  Scenester post-ironic distillery, chillwave truffaut neutra tofu butcher hot chicken bicycle rights sustainable marfa banh mi yuccie.  Tacos vexillologist locavore vice twee.  DIY schlitz tilde, williamsburg knausgaard tacos kinfolk swag four loko you probably haven't heard of them migas.  Migas freegan 3 wolf moon sustainable portland subway tile DIY shaman drinking vinegar forage small batch iPhone tofu whatever chia.
-
-Intelligentsia taiyaki cred pop-up locavore.  Gochujang succulents aesthetic banh mi subway tile pop-up.  Marfa brooklyn waistcoat yr, DIY keffiyeh viral air plant sriracha PBR&B 8-bit 3 wolf moon narwhal retro actually.  Swag vegan activated charcoal man braid art party, post-ironic coloring book bicycle rights taiyaki vape brooklyn.  Schlitz locavore skateboard, tousled franzen aesthetic glossier flexitarian.
